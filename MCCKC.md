@@ -4,3 +4,5 @@ The bad part of it was that for my first year expierience wise was not fun. The 
 The teachers there however did their part on having you succeed. 
 ## Why Longview
 I was forced to go to longview my first year because my parents wanted me to get a feel of what college course work was like.
+
+![alt text](https://echo360.com/wp-content/uploads/2019/02/768-MW-WalkwayGroup.jpg)
