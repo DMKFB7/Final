@@ -6,4 +6,5 @@ Info https://mcckc.edu/
 I joined Delta Upsilon this year when I got done to Mizzou
 
 
-[My Frat]
+[My Frat](frat.md)
+
