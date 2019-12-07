@@ -13,3 +13,7 @@ The thing that seperates Delta Upsilon from all other fraternities is that we're
 4.The core values that they represent I saw in myself
 
 5.I wanted to do better in academics
+
+
+
+###[Back to Home](https://github.com/DMKFB7/Final/blob/master/README.md)
