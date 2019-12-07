@@ -1,4 +1,5 @@
 ## Delta Upsilon
+![alt text](https://upload.wikimedia.org/wikipedia/en/thumb/7/7e/Delta_Upsilon_Member_Badge.svg/1079px-Delta_Upsilon_Member_Badge.svg.png)
 
 I joined Delta Upsilon this year with our motto: Justice our foundation
 The thing that seperates Delta Upsilon from all other fraternities is that we're a non hazing non secret.
